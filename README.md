@@ -1,1 +1,1 @@
-# dekopinda-kuantan-singingi
+# dekopinda-karanganyar
